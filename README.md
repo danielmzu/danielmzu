@@ -24,6 +24,6 @@ My interests within the ***environmental sciences*** universe:
 - Hydrology&Hydraulics (open channels flow and pipe flow), Hydrogeology (aquifers) and Basin analysis.
 - Climatology, Climate change, Air quality, Weather dynamics and its local impacts.
 
-Thanks for reading, feel free to contact me if you have any comment, suggestion or resource to share with me or any project you think I could join :)
+Thanks for reading, feel free to contact me if you have any comment, suggestion ,resource to share or any project you think I could join :)
 
 
